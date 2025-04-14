@@ -1,1 +1,1 @@
-# Proyecto-Monitoreo-de-Condici-n-2025-1
+# Proyecto Monitoreo de Condicion 2025-1
